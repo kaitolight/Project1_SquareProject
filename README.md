@@ -10,4 +10,4 @@ Emma Bignon - https://github.com/BignonEmma / https://www.linkedin.com/in/emma-b
 
 Julien Vigneron - https://github.com/gnos28 / https://www.linkedin.com/in/julienvigneron/
 
-Anthony Aubert - 
+Anthony Aubert - https://github.com/Anthony-37 /
